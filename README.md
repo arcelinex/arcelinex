@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-https://media1.tenor.com/m/sEHgp8oMQm4AAAAd/bts-v-taehyung.gif
+(https://media1.tenor.com/m/sEHgp8oMQm4AAAAd/bts-v-taehyung.gif)
